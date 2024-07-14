@@ -2,7 +2,7 @@
 
 **Everything Beauty**
 
-Welcome to SokoBeauty, where beauty meets innovation! 💅🌟
+Welcome to SokoBeauty, where beauty meets innovation! 🌟
 
 SokoBeauty is not just a platform; it's an experience. 🚀 We've combined the charm of short-form videos with the expertise of beauty professionals to bring you a captivating journey into the world of skincare, makeup, and hair care. 🎥💄✂️
 
